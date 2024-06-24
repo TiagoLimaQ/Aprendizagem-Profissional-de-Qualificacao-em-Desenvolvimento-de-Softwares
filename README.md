@@ -1,1 +1,1 @@
-# Aprendizarem-Profissional-de-Qualificaco-em-Desenvolvimento-de-Software
+# Aprendizarem-Profissional-de-Qualificacao-em-Desenvolvimento-de-Software
